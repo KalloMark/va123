@@ -1,5 +1,5 @@
 # va123
 # gépről írtam :)
 # saját gép bejegyzés
-# billen-tyűzet :)
-# akc misi koncert mickor?
+# klaviatúra
+# nem, nem
