@@ -1,2 +1,3 @@
 # va123
-gépről írtam :)
+# gépről írtam :)
+# konfliktus
