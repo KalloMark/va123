@@ -1,5 +1,6 @@
 # va123
 # gépről írtam :)
 # saját gép bejegyzés
-# klaviatúra
-# nem, nem
+# billen-tyűzet :)
+# akc misi koncert mickor?
+# amogus, amo gusugs, gusamoa, a
