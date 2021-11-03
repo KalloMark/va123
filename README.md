@@ -2,3 +2,4 @@
 # gépről írtam :)
 # saját gép bejegyzés
 # billen-tyűzet :)
+# akc misi koncert mickor?
